@@ -21,7 +21,7 @@ Here on GitHub, I'm actively contributing to open-source projects, experimenting
 ### Let's Connect!
 
 I'm always eager to connect with fellow developers, adventurers, and anyone passionate about technology and exploration. 
-Feel free to reach out to me here on GitHub or connect with me.
+Feel free to reach out to me here on GitHub or connect with me on www.linkedin.com/in/shekmohamed
 
 
 
